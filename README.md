@@ -1,10 +1,10 @@
                                                               ｡☆✼★━━━━━━━━━━━━★✼☆｡
 
- #🔴🟠🟡🟢🔵🟣 Oii eu sou cojurinha azul, aprediz de tecnologia e estudante do futuro
+ #🔴🟠🟡🟢🔵🟣 Oii eu sou akira, aprediz de tecnologia e estudante do futuro
  
- #🔴🟠🟡🟢🔵🟣 Hi I'm blue owl, technology apprentice and student of the future
+ #🔴🟠🟡🟢🔵🟣 Hi I'm Akira, technology apprentice and student of the future
  
- #🔴🟠🟡🟢🔵🟣 Hola soy azul cojurinha, aprendiz de tecnología y estudiante del futuro
+ #🔴🟠🟡🟢🔵🟣 Hola soy akira, aprendiz de tecnología y estudiante del futuro
  
 🦚🏳️‍🌈- Meu apelido é corujinha 🙃
 
